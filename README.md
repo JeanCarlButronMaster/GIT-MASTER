@@ -14,12 +14,12 @@ El esfuerzo de terminar estudios frente al salario que encuentran al terminar:
 
 El mayor porcentaje de puestos para informáticos tienen que ver con tareas de programación.
 
-Profesión de la mayor dignidad, complejidad, necesaria de preparación, donde se encuentran.
-
 Un estres e interminables jornadas son parte inherente del trabajo en demasiadas ocasiones.
+
+Contando reconocimiento social que es prácticamente inexistente o negativo en muchos casos.
 
 Por tanta necesidad continua de estudio a causa de la evolución constante de la tecnología.
 
 Van acabando poco valorados por muchas empresas selectivas con sueldos relativamente bajos.
 
-Contando reconocimiento social que es prácticamente inexistente o negativo en muchos casos.
+Profesión de la mayor dignidad, complejidad, necesaria de preparación, donde se encuentren.
