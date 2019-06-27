@@ -1,5 +1,4 @@
 # Git-Master
-Proyecto con Git Hub
 
 La imagen que la sociedad tiene de los programadores de sistemas informaticos: 
 
